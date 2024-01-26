@@ -11,4 +11,5 @@ You can reach me here :
   - shacya11@gmail.com
     
 certificates and awards:
-  - 
+  - https://drive.google.com/drive/folders/10NaWdrAZXLCPzKPfAOq5lgfR39ZUFClC?usp=sharing 
+ 
